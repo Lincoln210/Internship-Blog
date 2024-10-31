@@ -1,4 +1,4 @@
-# Navigating the Tech Industry as a First-Generation
+# Navigating the Tech Industry as a First-Generation College Student
 
 ## Introduction and Background
 Growing up as a first-generation student, I often felt like I was straddling two different worlds: the life my parents envisioned for our family when they emigrated from Bangladesh and the harsh realities of establishing ourselves in America. These worlds coincided mostly during my high school years when I realized that the challenges my family faced were not just financial but also deeply personal. Reflecting on these experiences, I can see how they have shaped my resilience, determination, and the drive that now fuels my passion for my career.
